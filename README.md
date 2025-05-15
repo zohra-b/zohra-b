@@ -3,10 +3,10 @@ I'm currently working on my readme !
 
 
 
-- 🌱 I love being thrown our of my confort zone and learning new stuff!!! 😅
+- 🌱 I love to be thrown out of my confort zone and learning new stuff!!! 😅
 
 
-- 📫 You can easily reach me through my [LinkedIn](https://www.linkedin.com/in/zohra-bellamine-8b206a287/)
+- 📫 You can easily reach me through my [LinkedIn](https://www.linkedin.com/in/z-bellamine)
 
 - ⚡ Fun fact: I used to be a "gentlewoman farmer"
 
